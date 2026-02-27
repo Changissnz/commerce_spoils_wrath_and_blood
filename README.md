@@ -23,9 +23,12 @@ what the F*** is the deal with the organization of labor in the United States. *
 to find workers. Potential workers cannot find work. No one wants to do the work. There is too much supply and 
 not enough demand.** The excuses and complaints go on and on, and I take a look at where I am in life, not being 
 to afford something like a lamborghini or an estate. I would have been feeling sad, but then I remember...I'm not 
-Italian or a rich American. However, I do feel entitled to having suitable housing conditions and a salary. 
+Italian or a rich American. However, I do feel entitled to having suitable housing conditions and a salary. Aww... 
+I've never had a Bar Mitzvah before. But wait... I'm also not Jewish either. Aww... I've been to a Chinese New 
+Year celebration. But wait... I don't even care that much about Lunar New Year. In fact, when I hear of Oriental 
+New Year celebrations, I sometimes think of firebombs and AK-47s. 
 
-However, this is the United States that I'm talking about. Besides from most Americans knowing at least some English, 
+Anyhow, this is the United States that I'm talking about. Besides from most Americans knowing at least some English, 
 I can't say there are norms that everyone can agreed on, without some people really beating it due to their insolent 
 self-interest. The issue is that some people think some things are just so funny, until they open up a box 
 one day, thinking it's from another nobody that owes them something, them being so entitled and superior... and BOOM!! 
