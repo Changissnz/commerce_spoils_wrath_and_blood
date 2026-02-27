@@ -29,7 +29,7 @@ Year celebration. But wait... I don't even care that much about Lunar New Year. 
 New Year celebrations, I sometimes think of firebombs and AK-47s. 
 
 Anyhow, this is the United States that I'm talking about. Besides from most Americans knowing at least some English, 
-I can't say there are norms that everyone can agreed on, without some people really beating it due to their insolent 
+I can't say there are norms that everyone can agree on, without some people really beating it due to their insolent 
 self-interest. The issue is that some people think some things are just so funny, until they open up a box 
 one day, thinking it's from another nobody that owes them something, them being so entitled and superior... and BOOM!! 
 Destruction and disgrace. 
