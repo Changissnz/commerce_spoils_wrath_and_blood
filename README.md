@@ -40,7 +40,7 @@ break my bones, but words can never hurt me". But then some lowlifer in the gove
 you allegedly sent and wrote and did. And then you get garbage treatment at work. And then you get fired. And then you 
 become CEO one day, have 600 wives like that Arab Solomon, and treat your lieutenants like hog s*** daily because you 
 went through so much hardship, so you deserve to feel like a king... and then suddenly... BAM! BAM-BAM BAM! Destruction 
-and disgrace. And then you wake up to realize it was all a dream. There's no such thing as a CEO that's also not a boobie for the federal government. So you resign and quit your job, finally acknowledging that raping and bullying is not ethical. The workplace should be considerate and devoid of needless collusion, shouldn't it? 
+and disgrace. And then you wake up to realize it was all a dream. There's no such thing as a CEO that's also not a boobie for the federal government. So you resign and quit your job, finally acknowledging that raping and stealing and bullying is not ethical. The workplace should be considerate and devoid of needless collusion, shouldn't it? 
 
 ---------------------------------------------------------------------------------------------------------------------
 ---------------------------------------------------------------------------------------------------------------------
