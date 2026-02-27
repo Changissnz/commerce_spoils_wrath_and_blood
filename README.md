@@ -53,7 +53,9 @@ This story by Claude f***ing sucks. I gave it bullet points to talk about. The f
 narrative. It was like something a high school girl would write. After I told it a few times to revise itself out of fictional 
 tones, some of its reasoning is off. But because of my help, this Claude story is not half-bad. But it also is half-bad, upon 
 review. It's like Claude didn't really think writing this. I gave it bullet points. It stated my main points. But it added in 
-this fluff and deflection, like "it's not a living salary, it's 10 years in prison or death". 
+this fluff and deflection, like "it's not a living salary, it's 10 years in prison or death". I'm going to be somewhat hating 
+on the American economy for a while now. Nothing is going to change the way I feel about some things now. There can be as many 
+AI bubble crashes as possible. It's all BLEHH. 
 
 Shutttttt uppp, Claude. 
 
