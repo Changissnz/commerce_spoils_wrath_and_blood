@@ -24,7 +24,7 @@ to find workers. Potential workers cannot find work. No one wants to do the work
 not enough demand.** The excuses and complaints go on and on, and I take a look at where I am in life, not being 
 to afford something like a lamborghini or an estate. I would have been feeling sad, but then I remember...I'm not 
 Italian or a rich American. However, I do feel entitled to having suitable housing conditions and a salary. Aww... 
-I've never had a Bar Mitzvah before. But wait... I'm also not Jewish either. Aww... I've been to a Chinese New 
+I've never had a Bar Mitzvah before. But wait... I'm also not Jewish either. Aww... I've never been to a Chinese New 
 Year celebration. But wait... I don't even care that much about Lunar New Year. In fact, when I hear of Oriental 
 New Year celebrations, I sometimes think of firebombs and AK-47s. 
 
